@@ -2,6 +2,7 @@
 Accumulate just enough punya - quickly and without boring sadhana.
 
 This project does not make any sense to Indians and non-Indians alike. Stay away and stay happy.
+Know more at https://prakarma.com/let-technology-help-to-write-your-rama-naamas/
 
 
 ## What this is?
